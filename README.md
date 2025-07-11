@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently study on POLNES<br>🌱 I’m currently learning Basic Computer<br>💬 Ask me about Computer Science<br>⚡ Fun fact I like mie ayam
+🔭 I’m currently study on IMPHNEN<br>🌱 I’m currently learning Basic Computer<br>💬 Ask me about Computer Science<br>⚡ Fun fact I like mie ayam
 
 
 ## 🌐 Socials:
